@@ -1,4 +1,4 @@
-# 👋Hi Guys I'm creekHeng.
+# 👋Hey Guys I'm creekHeng.
 
 + 🌊 My Blog : [ferrystars.xyz](https://www.ferrystars.xyz) 
 + 🌱 AI研究生。愿为夜幕暗室的一粒灯火，照彻万里尘埃千百年。
